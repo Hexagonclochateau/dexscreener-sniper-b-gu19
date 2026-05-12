@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with best MEV Bot for pump.fun sniper bot | auto-sell & degen-coin-scanning, the #1 pump.fun sniper bot. Includes auto-sell and degen-coin-scanning for a
 
 
 
